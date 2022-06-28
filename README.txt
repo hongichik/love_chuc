@@ -1,0 +1,1 @@
+Trước kia hồng luông sống một mình, lúc nào cũng cô đơn một mình và luôn khao khát được yêu thương
